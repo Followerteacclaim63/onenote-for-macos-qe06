@@ -1,4 +1,4 @@
-#  
+#  OneNote for macOS rare Automation - widgets and export to PDF offers the most advanced OneNote for macOS automation, with widgets and export to PDF. Ideal for professionals.
 
 
 
